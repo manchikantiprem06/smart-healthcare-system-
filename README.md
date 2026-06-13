@@ -1,2 +1,2 @@
 smart-healthcare-system output 
-https://github.com/manchikantiprem06/smart-healthcare-system-
+https://studio.youtube.com/video/UzNqSk049gA/edit
